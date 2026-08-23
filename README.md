@@ -1,3 +1,3 @@
 <p align="right">
-  <img src="https://media.tenor.com/YS2jwKVfKj8AAAAM/the-mentalist-patrick-jane.gif" width="200">
+  <img src="https://miro.medium.com/1*xZ1IVCDFfTqQ8eBA6ghSZA.gif" width="200">
 </p>
